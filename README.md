@@ -1,0 +1,2 @@
+Objective:
+Highly motivated Computer Science student with expertise in machine learning, web development, data structures and algorithms, and proficiency in multiple programming languages. Seeking opportunities to apply my skills and knowledge in a dynamic environment where I can contribute to innovative projects and further develop my capabilities while making a meaningful impact on the field of technology.
